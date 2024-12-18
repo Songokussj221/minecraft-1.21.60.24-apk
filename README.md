@@ -4,7 +4,7 @@
 
 **Minecraft** adalah permainan sandbox yang memungkinkan pemain untuk mengeksplorasi dunia luas yang terbuat dari blok, membangun struktur, menambang sumber daya, dan bertahan hidup di lingkungan yang penuh tantangan. **Minecraft Mod APK** adalah versi modifikasi dari permainan aslinya yang menawarkan fitur tambahan seperti sumber daya tak terbatas, modifikasi khusus, dan konten yang tidak tersedia di versi standar. Dengan mod APK ini, Anda dapat merasakan pengalaman yang lebih seru dengan kemampuan untuk menyesuaikan permainan sesuai keinginan Anda.
 
-## ⬇️ Unduh Disini : https://modhello.com/?s=minecraft 📲
+## ⬇️ Unduh Disini : https://modhello.com/minecraft/ 📲
 ![MV5BNjQzMDlkNDctYmE3Yi00ZWFiLTlmOWYtMjI4MzQ4Y2JhZjY2XkEyXkFqcGc@ _V1_](https://github.com/user-attachments/assets/689bffba-156a-4fd5-8751-d6ca1c0104f7)
 
 
